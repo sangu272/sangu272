@@ -2,7 +2,7 @@
 - 👀 I’m interested in 😂
 - 🌱 I’m currently learning 👀
 - 💞️ I’m looking to collaborate on 📨
-- 📫 How to reach me @NAWAB_OFFICE
+- 📫 How to reach me https://t.me/NAWAB_OFFICE
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
